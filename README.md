@@ -1,11 +1,4 @@
-BOT INTEIRAMENTE EDITÁVEL FEITO POR TRASHDK E CAUSS
+Feito por acerx😎🙌
 
 
-CANAIS -
-
-
-
-TRASHDK - https://youtube.com/channel/UCOqlFzRrB8IZUWUx1cwCeUw
-
-
-CAUSS - https://youtube.com/c/caussZ
+para termux, comandos no meu video 😼
